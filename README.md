@@ -1,1 +1,1 @@
-# sya
+# dibuka ya sya
